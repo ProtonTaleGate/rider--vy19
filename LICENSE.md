@@ -1,4 +1,4 @@
-# 
+# Get the ultimate JetBrains Rider for PC | JetBrains Rider for Windows helper with rare JetBrains Rider for PC | JetBrains Rider for Windows Helper | refactoring-tools +
 
 
 
